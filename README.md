@@ -9,7 +9,7 @@
 
 - 📫 If you want to slide into my Dm's 😈 **arthur.schott@epitech.eu**
 
-- 📄 Know about my experiences [[https://drive.google.com/file/d/11a4FXEXoPKfjT6E3h8_RPNp71akeFbPc/view?usp=sharing](https://drive.google.com/file/d/11a4FXEXoPKfjT6E3h8_RPNp71akeFbPc/view?usp=sharing)](https://drive.google.com/file/d/11a4FXEXoPKfjT6E3h8_RPNp71akeFbPc/view?usp=sharing)
+- 📄 Know about my experiences https://drive.google.com/file/d/11a4FXEXoPKfjT6E3h8_RPNp71akeFbPc/view?usp=sharing](https://drive.google.com/file/d/11a4FXEXoPKfjT6E3h8_RPNp71akeFbPc/view?usp=sharing)
 
 - ⚡ Fun fact **I do IronMans and I love F1!**
 
