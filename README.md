@@ -5,7 +5,7 @@
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=squekk" alt="squekk" /></a> </p>
 
-- 🌱 I’m currently learning **at Epitech**
+- 🌱 I’m currently studying **at Epitech**
 
 - 📫 If you want to slide into my Dm's 😈 **arthur.schott@epitech.eu**
 
